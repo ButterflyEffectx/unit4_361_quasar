@@ -1,9 +1,11 @@
 # 🌹 Roses are Red, Violets are Blue 🌸
 
 
-**A face like yours**  
-_Belong in a zoo._
+**A face like yours  
+_Belong in a zoo._**
 
+**Don't you worry,
+I'll be there too,**
 
 **Not in the cage,  
 But laughing at you...** 😄
